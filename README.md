@@ -17,7 +17,7 @@ hey im genji/bryce and i do a whole lot of nothing on ponytown<br>
 </p>
 
 <p align="center">
-  <a href="https://rentry.co/greencyborg">rentry</a>ㅤ<a href="https://pronouns.cc/@wireandmetal">pronouns.cc</a>
+<a href="https://bryceslop.straw.page">rentry</a>  <a href="https://rentry.co/greencyborg">rentry</a>ㅤ<a href="https://pronouns.cc/@wireandmetal">pronouns.cc</a>
 </p>
 
 <p align="center">
