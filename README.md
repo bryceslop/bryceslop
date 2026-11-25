@@ -8,9 +8,8 @@
 
 <p align="center">
 hey im genji⠀⠀im 16⠀⠀he/him<br>
-  int (c+h) is okay⠀⠀<img src="https://files.catbox.moe/2ha1xk.gif"/>⠀⠀im usually not on tab<br>
+  int (c+h) is okay⠀⠀<img src="https://files.catbox.moe/2ha1xk.gif"/>⠀⠀doubles heavy iwc<br>
   i go wherever the wind takes me<br>
-  sourcemates interact⠀⠀doubles heavy iwc<br>
   </p>
 
 <p align="center">
@@ -18,7 +17,8 @@ hey im genji⠀⠀im 16⠀⠀he/him<br>
 </p>
 
 <p align="center">
-<a href="https://bryceslop.straw.page">strawpage</a>ㅤ<a href="https://rentry.co/greencyborg">rentry</a>ㅤ<a href="https://pronouns.cc/@wireandmetal">pronouns.cc</a>
+<a href="https://bryceslop.straw.page">strawpage</a>ㅤ<a href="https://rentry.co/greencyborg">rentry</a>ㅤ<a href="https://pronouns.cc/@wireandmetal">pronouns.cc</a><br>
+<a href="https://github.com/Castellae">anija</a>ㅤ<—ㅤi dont know that guy
 </p>
 
 <p align="center">
