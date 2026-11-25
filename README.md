@@ -13,7 +13,7 @@ hey im genji⠀⠀im 16⠀⠀he/him<br>
   </p>
 
 <p align="center">
-<img width="240" src="https://komarev.com/ghpvc/?username=bryceslop&label=DRAGONBLADE+KILLS&color=b6ef13">
+<img width="210" src="https://komarev.com/ghpvc/?username=bryceslop&label=DRAGONBLADE+KILLS&color=b6ef13">
 </p>
 
 <p align="center">
