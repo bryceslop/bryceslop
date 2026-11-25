@@ -9,7 +9,7 @@
 <p align="center">
 hey im genji⠀⠀im 16⠀⠀he/him<br>
   i go wherever the wind takes me<br>
-  int (c+h) is okay although im usually not on tab<br>
+  int (c+h) is okay⠀⠀<img src="https://files.catbox.moe/qfzmbj.png)" style="width: 50px; height: auto;"/>⠀⠀im usually not on tab<br>
   sourcemates interact⠀⠀doubles heavy iwc<br>
   </p>
 
@@ -23,8 +23,7 @@ hey im genji⠀⠀im 16⠀⠀he/him<br>
 
 <p align="center">
 <img src="https://files.catbox.moe/pl1snm.png"/> <img src="https://files.catbox.moe/mubwdk.png"/> <img src="https://files.catbox.moe/5u128s.webp"/><br>
- <img src="https://files.catbox.moe/pxdaff.webp"/><br>
-  <img src="https://files.catbox.moe/0iuwul.gif"/>
+ <img src="https://files.catbox.moe/pxdaff.webp" style="width: 150px; height: auto;"/> <img src="https://files.catbox.moe/0iuwul.gif"/>
 </p>
 
 <p align="center">
