@@ -22,10 +22,5 @@ hey im genji⠀⠀im 16⠀⠀he/him<br>
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/pl1snm.png"/> <img src="https://files.catbox.moe/mubwdk.png"/> <img src="https://files.catbox.moe/5u128s.webp"/><br>
- <img src="https://files.catbox.moe/pxdaff.webp" style="width: 150px; height: auto;"/> <img src="https://files.catbox.moe/0iuwul.gif"/>
-</p>
-
-<p align="center">
 <b>basic dni (SHIMADACEST DNI)</b>
 </p>
