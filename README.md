@@ -8,8 +8,8 @@
 
 <p align="center">
 hey im genji⠀⠀im 16⠀⠀he/him<br>
-  i go wherever the wind takes me<br>
   int (c+h) is okay⠀⠀<img src="https://files.catbox.moe/2ha1xk.gif"/>⠀⠀im usually not on tab<br>
+  i go wherever the wind takes me<br>
   sourcemates interact⠀⠀doubles heavy iwc<br>
   </p>
 
